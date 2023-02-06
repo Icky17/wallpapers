@@ -1,3 +1,3 @@
 # wallpapers
 
-My Wallpapers (for Linux)
+Here are some wallpapers you can use for yourself :)
